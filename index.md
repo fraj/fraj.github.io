@@ -1,3 +1,3 @@
 # Contact me
 
-On LinkedIn: https://www.linkedin.com/in/frajchenbach/
+On LinkedIn: https://www.linkedin.com/in/frajchenbach
